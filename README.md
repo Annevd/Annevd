@@ -2,7 +2,7 @@
 
 My name is Anne and I'm a second year Frontend Design & Development student. In my free time I love relaxing through games, making music and creating different kinds of artworks!
 
-Look through my artworks [here](https://www.instagram.com/xartisticanne/)!
+Look through my artworks [here](https://www.instagram.com/xartisticanne?igsh=ZHAweG96MDVjZXc=)!
 
 You can also find me on [LinkedIn](https://www.linkedin.com/in/anne-van-dijk-617a472a4/).
 
